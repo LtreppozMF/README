@@ -2,3 +2,5 @@
 Here's Léo 101
 
 💪 I'm new here, trying to understand how Github works !
+
+This is looking promissing ! ☄️
