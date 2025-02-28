@@ -10,4 +10,4 @@ This is looking promising ! ☄️
 
 Go !
 
-On s'éclate comme des petits fus héhé
+On s'éclate comme des petits fous héhé
